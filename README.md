@@ -1,2 +1,2 @@
 # roblox-drop-offs-NBA-Hoopz-aimbot-2
-discord: moneywords
+discord: roballlegend_20081
